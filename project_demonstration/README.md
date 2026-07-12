@@ -1,1 +1,1 @@
-Here is the complete video demonstration of the project.
+Here is the complete screenshots of the project.
